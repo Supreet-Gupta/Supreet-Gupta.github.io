@@ -1,2 +1,2 @@
-# supreet.github.io
+# Supreet-Gupta.github.io
 My first one :)
